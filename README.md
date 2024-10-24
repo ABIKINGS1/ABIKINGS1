@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ABIKINGS1
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 👀 I’m interested in Cyber Security 
+- 🌱 I’m currently learning Cyber Security 
+- 💞️ I’m looking to collaborate on professional in the field of cyber security 
 - 📫 How to reach me abikings1989@gmail.com
 - 😄 Pronouns: 
 - ⚡ Fun fact: reading and Solving problems 
