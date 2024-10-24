@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ABIKINGS1
+- 👋 Hi, I’m @ABI ENYI KINGSLEY
 - 👀 I’m interested in Cyber Security 
 - 🌱 I’m currently learning Cyber Security 
 - 💞️ I’m looking to collaborate on professional in the field of cyber security 
